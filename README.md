@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Melda Karaer
 - 👀 I’m interested in learning.
-- 🌱 I’m currently learning IIT.
+- 🌱 I’m currently learning IT.
 - 💞️ I’m looking to collaborate teams.
 - 📫 How to reach me @meldakaraerr@gmail.com
 
